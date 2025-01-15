@@ -1,1 +1,1 @@
-https://avelauw.github.io/team_the_solutions_squad/
+https://avelauw.github.io/team_the_solutions_squad/index.html
